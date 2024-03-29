@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SanyamB0912
 - 👀 I’m interested in coding and mathematics. 
 - 🌱 I’m currently learning Computer Science.
-- 💞️ I’m looking to collaborate on projects on coding.
+- 💞️ I’m looking to collaborate on projects and researches.
 - 📫 How to reach me ...@sbhardwaj0912@gmail.com 
                         @sbhardwaj091204@gmail.com 
 
